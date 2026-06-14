@@ -1,5 +1,5 @@
 ![image alt](https://github.com/soo-soo-shy/soo-soo-shy/blob/c815235a548ad2e983a55db55d321e0c777e40eb/Untitled169_20260423235110.png)
-## .
+
 
 <!--
 **soo-soo-shy/soo-soo-shy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
