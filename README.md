@@ -1,5 +1,6 @@
+![image alt](https://github.com/soo-soo-shy/soo-soo-shy/blob/18c19b3dc8cba75313927b0cab7f6e8e3d149e3f/487578e5bc4eaabe814aa0f4dabca313.gif)
 ![image alt](https://github.com/soo-soo-shy/soo-soo-shy/blob/c815235a548ad2e983a55db55d321e0c777e40eb/Untitled169_20260423235110.png)
-
+![image alt](https://github.com/soo-soo-shy/soo-soo-shy/blob/18c19b3dc8cba75313927b0cab7f6e8e3d149e3f/759f963df226818ca8ac62469a053340.webp.jpg)
 
 <!--
 **soo-soo-shy/soo-soo-shy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
